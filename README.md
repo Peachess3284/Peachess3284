@@ -1,9 +1,9 @@
-Header
+Hi, I'm Anna!
 
-About me
+Former journalist, manager, and entrepreneur. 
 
 Recent projects
 
-Languages and tools
+Languages and tools 
 
-Contact me
+Contact me on [linkedIn](https://www.linkedin.com/in/asamokaeva/) or [email](mailto:annasamokaeva2020@gmail.com) me
