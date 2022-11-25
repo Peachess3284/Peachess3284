@@ -6,4 +6,4 @@ Recent projects
 
 Languages and tools 
 
-Contact me on [linkedIn](https://www.linkedin.com/in/asamokaeva/) or [email](mailto:annasamokaeva2020@gmail.com) me
+Contact me on [linkedIn](https://www.linkedin.com/in/asamokaeva/) or [email](annasamokaeva2020@gmail.com) me
